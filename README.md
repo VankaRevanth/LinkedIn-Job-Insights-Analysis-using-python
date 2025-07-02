@@ -6,3 +6,7 @@ Leveraging LinkedIn's extensive job posting data provides a valuable opportunity
 ![image](https://github.com/user-attachments/assets/45e24b96-7ccb-42cf-8eea-53e96e44c17b)
 
 
+![image](https://github.com/user-attachments/assets/f61adf19-fc24-4234-a325-8678456b5b7f)
+
+
+
